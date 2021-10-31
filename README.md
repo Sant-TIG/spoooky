@@ -1,2 +1,0 @@
-# spoooky
-Halloween Rush
